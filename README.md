@@ -1,1 +1,0 @@
-# huseyincavus1210.github.io
